@@ -27,7 +27,7 @@
 
 - 👀 Quotes: **"The future will treat me well because I intend to write it..."**
 
-- 🏃‍♀ Hobby: **https://vi.wikipedia.org/wiki/Thành_viên:Albert_Nafta**
+- 🏃‍♀ Hobby: **<a href="https://vi.wikipedia.org/wiki/Thành_viên:Albert_Nafta">Albert Nafta</a>**
 
 ### Connect with me:
 
